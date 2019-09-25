@@ -1,0 +1,2 @@
+# Messi-vs-Ronaldo
+Lionel Messi uses left foot, whereas Christiano Ronaldo uses his right foot to play football. Both of them are equally great. However Messi seems to be an effortless player of the ball. Does Messi have an upper hand because he uses his left foot? Through the stats of left footed and right footed players we can see what factors actually govern the overall ratings of left footed players or right footed players. This might break the enigma of whether the left footed players actually have an upper hand in the play because the stats never lie.
